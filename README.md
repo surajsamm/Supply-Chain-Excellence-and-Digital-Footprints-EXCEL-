@@ -1,4 +1,8 @@
 # Supply-Chain-Excellence-and-Digital-Footprints-EXCEL-
+![image](https://github.com/user-attachments/assets/69526ba6-b684-43b3-a9ca-699f08c337b4)
+![image](https://github.com/user-attachments/assets/85f276fb-dca5-4c6f-a93e-519a81061321)
+
+
 
 # Ecommerce
 
